@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **rohangupta700709@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11gF1nk8xkk9VO_0Y07JYr7Vac2PPOfDC/view?usp=sharing](https://drive.google.com/file/d/11gF1nk8xkk9VO_0Y07JYr7Vac2PPOfDC/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/11gF1nk8xkk9VO_0Y07JYr7Vac2PPOfDC/view?usp=sharing](https://drive.google.com/file/d/11gF1nk8xkk9VO_0Y07JYr7VacPOfDC/view?usp=sharing)
 
 - ⚡ Fun fact **From code to cosmos, my mind wanders both near and far.**
 
